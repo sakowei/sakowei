@@ -7,7 +7,7 @@
 - 🎥 Creator of some videos on [Bilibili](https://space.bilibili.com/123384044)
 - 📸 Like to hang-out and photographing
 - 🥃 Pepsi and Cola lover
-- 😄 About Pronouns:
+- 😄 About Pronounce:
   - さわはら こうすけ in 日本語   
   - ze1 yuan1 hao4 fu3 in 中文
   - You can also call me **Rick** in English
