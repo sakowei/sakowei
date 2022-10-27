@@ -3,8 +3,8 @@
 ### Hi, 我是 沢原威大将 (sakowei) 👋
 どうも！よろしくお願いします 🙃
 
-🔊 Chinese & English speaker, 日本語勉强中
-📘 Working for UI Design and DevOps
-🎥 We-media of [Bilibili](https://space.bilibili.com/123384044)
-📸 Like to hang-out, writing and photographing
-☕ Coke and coffee lover
+- 🔊 Chinese & English speaker, 日本語勉强中
+-📘 Working for UI Design and DevOps
+- 🎥 We-media of [Bilibili](https://space.bilibili.com/123384044)
+- 📸 Like to hang-out, writing and photographing
+- ☕ Coke and coffee lover
